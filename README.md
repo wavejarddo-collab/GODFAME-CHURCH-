@@ -38,7 +38,7 @@ Support outreach programs
 Partner with us in spreading the Gospel
 📩 Contact
 For inquiries, prayer requests, or partnership:
-📧 Email: info@godfamechurch.org
+📧 Email: info@godfamechurch.com
 📍 Location: [ONITSHA ANAMBRA STATE NIGERIA ]
 📞 Phone: [+234 7060555561]
 🙌 Scripture Foundation
